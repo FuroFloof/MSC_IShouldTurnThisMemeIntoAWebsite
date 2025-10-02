@@ -8,6 +8,6 @@ I should turn this meme into a github repository.
 
 <br>
 
-## Speciat Thanks!! :DD
+## Special Thanks!! :DD
 - [r/whenthe](https://reddit.com/r/whenthe)<br>
 - [u/Content-Walrus-5517](https://www.reddit.com/user/Content-Walrus-5517/)
