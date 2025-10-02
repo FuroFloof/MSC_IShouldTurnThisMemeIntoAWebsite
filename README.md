@@ -6,7 +6,7 @@ I should turn this meme into a github repository.
 
 ## Visit the website [here!](https://ishouldturnthismemeintoaweb.site)!
 
-<br><br>
+<br>
 
 ## Speciat Thanks!! :DD
 - [r/whenthe](https://reddit.com/r/whenthe)<br>
